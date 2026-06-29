@@ -1,4 +1,4 @@
-# 
+# Melhor DisplayFusion scripts para Mac OS | VIP DisplayFusion scripts para PC Windows. Com remocao de arquivos temporarios e configuracoes privadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
